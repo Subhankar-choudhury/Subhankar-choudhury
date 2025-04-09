@@ -1,4 +1,4 @@
 ## Hey there 👋
-## AH, YES THIS IS 
-**Subhankar-choudhury/Subhankar-choudhury**
+**AH, YES THIS IS** 
+**Subhankar Choudhury**
 **still exploring ○( ＾皿＾)っHehehe…** 
