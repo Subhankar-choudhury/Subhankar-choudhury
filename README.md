@@ -1,7 +1,6 @@
 <p align="center">
-  <img src="![HelloHeyGIF](https://github.com/user-attachments/assets/b25c4964-887d-4fec-a6d5-74dcb684ff7c)" alt="Hello Penguin GIF" />
-</p>![Uploading HelloHeyGIF (2).gif…]()
-
+  <img src="https://media.giphy.com/media/3o7aD2saalBwwftBIY/giphy.gif" alt="Hello Penguin" />
+</p>
 <br>
 
 **AH, YES THIS IS** <br>
