@@ -4,5 +4,5 @@
 </p>
 
 <br>
-<strong>AH, YES THIS IS</strong> <br>
-**Subhankar Choudhury, still exploring ○( ＾皿＾)っHehehe…** 
+<strong>AH YES, THIS IS</strong> <br>
+<strong>Subhankar Choudhury,</strong> still exploring ○( ＾皿＾)っHehehe…** 
